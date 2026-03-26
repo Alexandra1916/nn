@@ -1,1 +1,1 @@
-Es una lluvia de te amo y cuabdo das click da mas teamos
+Es una lluvia de te amo y cuando das click da mas te amos
